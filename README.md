@@ -11,7 +11,7 @@ coding.
 
 ## 📖 Education
 
-1. MBA
+I have done my master degree in management.
 
 ---
 
